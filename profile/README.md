@@ -23,39 +23,39 @@ DpBoss India matka result Kalyan chart, Matka guessing Kalyan final Matka boss K
 ## Kalyan Satta Chart Result DpBoss Matka LIVE
 
 #### KALYAN
-- 138-29-225
+- **Loading...**
 - 03:45 PM - 05:45 PM
 
 #### MILAN MORNING
-- 278-77-250
+- **Loading...**
 - 10:15 AM - 11:15 AM
 
 #### SRIDEVI
-- 299-01-335
+- **Loading...**
 - 11:35 AM - 12:35 PM
 
 #### KALYAN MORNING
-- 378-86-268
+- **Loading...**
 - 11:00 AM - 12:02 PM
 
 #### PADMAVATHI
-- 360-94-158
+- **Loading...**
 - 11:40 AM - 12:40 PM
 
 #### MADHURI
-- 268-60-677
+- **Loading...**
 - 11:45 AM - 12:45 PM
 
 #### RAJDHANI MORNING [main]
-- 990-87-179
+- **Loading...**
 - 11:25 AM - 12:55 PM
 
 #### SRIDEVI MORNING
-- 137-11-579
+- **Loading...**
 - 09:30 AM - 10:30 AM
 
 #### MAHARANI
-- 246-23-490
+- **Loading...**
 - 12:15 PM - 02:15 PM
 
 #### KARNATAKA DAY
